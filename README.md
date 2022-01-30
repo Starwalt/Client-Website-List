@@ -1,9 +1,9 @@
 # Client-Website-List
 
 ```
-Aathi Vinayagar Refraftories
+Aathi Vinayagar Refractories
 
-Bridal Studio
+Aarudra Bridal Studio
 
 Niroshahairstylist
 
